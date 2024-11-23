@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on companies with my skills
 - 📫 How to reach me via Linkedin Barbara Braga
 - 😄 Pronouns: she / her
-- ⚡ Fun fact: I'm passionate about music, on mhy free time I play guitar and sing
+- ⚡ Fun fact: I'm passionate about music, on my free time I play guitar and sing
 
 <!---
 barbarallbs/barbarallbs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
